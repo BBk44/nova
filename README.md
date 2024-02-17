@@ -1,5 +1,5 @@
 https://discord.gg/XSkxnpZq7h
-
+ you have to invite me to a server and give me admin then I can nuke it
 
 
 
